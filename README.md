@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Lululemon and Sephora
 - 💞️ I’m looking to collaborate on ... Sephora and white fox
 - 📫 How to reach me ...Go to Sephora and Stanley cups store
-- 😄 Pronouns: ... S-E-P-H-O-R-A 10 Y-R O-L-D
+- 😄 Pronouns: ... Sephora/Coquette/Preppy/lulu
   - ⚡ Fun fact: ... I am 10 and i luv sephora
 
 <!---
